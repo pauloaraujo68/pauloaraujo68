@@ -8,3 +8,4 @@
 - Melhor professor do mundo
 - Pensamento Computacional
 - Pensar com lógica é fundamental
+🇿
